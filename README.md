@@ -1,5 +1,5 @@
 ### Hi there 👋
-### Rodrick Chikuni
+### Am Rodrick Chikuni
 
 Am Currently Working as Statistical Clerk At Partners In Hope Organisation. 
 Am Currently Studuying Bachelor Of Science In Data Science @ MZUNI. 
